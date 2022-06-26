@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Delzi
+- 👀 I’m interested in scripting
+- 🌱 I’m currently learning more scripting
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me you don't
